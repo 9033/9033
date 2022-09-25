@@ -21,7 +21,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 #### SNS
-- [Kakaotalk](https://open.kakao.com/o/sbNQpGDc)  
 - [LinkedIn](https://www.linkedin.com/in/jk423)  
 - [Instagram](https://www.instagram.com/0___0__0_0__0)  
 - [Facebook](https://facebook.com/jk423)  
