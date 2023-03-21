@@ -26,3 +26,5 @@ Here are some ideas to get you started:
 - [Facebook](https://facebook.com/jk423)  
 - [Twitter](https://twitter.com/jk423)  
 - [Soundcloud](https://soundcloud.com/ilbe)  
+#### Blog
+- [네이버](https://blog.naver.com/0___0__0_0__0)
